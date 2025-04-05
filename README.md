@@ -1,1 +1,1 @@
-just ur average Joe
+average Joe
